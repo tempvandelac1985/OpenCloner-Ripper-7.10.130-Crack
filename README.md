@@ -1,0 +1,1 @@
+# OpenCloner-Ripper-7.10.130-Crack
